@@ -1,0 +1,1 @@
+elzero typescript course briefs for quicker revision 💚
